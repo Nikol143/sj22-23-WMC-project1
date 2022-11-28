@@ -1,1 +1,0 @@
-# sj22-23-WMC-project1
